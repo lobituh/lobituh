@@ -1,3 +1,1 @@
-Sou Lobituh, um jovem idoso em busca de algo que muitos acreditam ser impossivel... 
-
 'Você está valorizando quem te ama?'
